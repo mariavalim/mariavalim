@@ -1,16 +1,14 @@
-### Hi there 👋
-
-<!--
-**mariavalim/mariavalim** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+oioii gnt!!
+não gosto de vcs
+só gosto de jogar bola
+e tbm gosto de ouvir ana castela 
+odeio a escola 
+tbm odeio que me chamem de regis
+só gosto que me chamem de valim
+amo dormir
+e tbm amo banana e os macacos
+mais oq eu mais amo é o corinthians
+minhas bests são a manu,bia e mariah
+não gosto mto delas tbm kjkjkjk brincadeira eu amo
+eu tbm amo MEUS NAMORADOS
+me sigam no insta galeris @maria_valimxz
